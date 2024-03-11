@@ -1,4 +1,4 @@
-<img align="left" height="199" src="https://img.freepik.com/free-vector/matrix-style-binary-code-digital-falling-numbers-blue-background_1017-37387.jpg?w=1380&t=st=1710161885~exp=1710162485~hmac=2620cf8cd6b00c2ed31ad404d539bda4d0a46d4eb06d645236955c1dc01fa7f5"  />
+<img align="center" src="![pp](https://github.com/saliihaksu/saliihaksu/assets/155645079/8edb3eea-ac46-4a76-b14c-b777c74a06ac)"  />
 
 ###
 
