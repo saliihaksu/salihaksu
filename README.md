@@ -1,4 +1,4 @@
-<img align="center" src="![pp](https://github.com/saliihaksu/saliihaksu/assets/155645079/8edb3eea-ac46-4a76-b14c-b777c74a06ac)"  />
+[pp](https://github.com/saliihaksu/saliihaksu/assets/155645079/8edb3eea-ac46-4a76-b14c-b777c74a06ac)
 
 ###
 
